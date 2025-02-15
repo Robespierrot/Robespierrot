@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Robespierrot
 - 👀 I’m interested in : nothing
-- 🌱 I’m currently learning : some stuffs
+- 🌱 I’m currently learning : some things
 - 💞️ I’m looking to collaborate on : nothing
 - 😄 Pronouns: obvious
 - ⚡ Fun fact: ask me
